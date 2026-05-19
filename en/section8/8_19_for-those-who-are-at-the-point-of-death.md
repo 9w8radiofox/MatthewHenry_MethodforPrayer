@@ -1,0 +1,7 @@
+# 8.18 | For those who are at the Point of Death
+
+## (If they be in appearance at the point of death.)
+
+## KJV Corporate
+
+Now the flesh and the heart are failing, Lord, be thou the strength of the heart, and an everlasting portion: Psalm 73:26(KJV) In the valley of the shadow of death, Lord be thou present, as the good Shepherd, with a guiding rod and a supporting staff. Psalm 23:4(KJV) O do not fail them, nor forsake them now: Hebrews 13:5(KJV) Be a very present help. Psalm 46:1(KJV) Into thy hands we commit the departing spirit, Psalm 31:5(KJV) as into the hands of a faithful Creator, 1 Peter 4:19(KJV) by the hands of him who has redeemed it. Let it be carried by the angels into Abraham’s bosom. Luke 16:22(KJV) Let it be presented to thee without spot or wrinkle or any such thing. Ephesians 5:22(KJV) Lord Jesus, receive this precious soul; Acts 7:59(KJV) let it come to the spirits of just men made perfect; Hebrews 12:23(KJV) when it is absent from the body, let it be present with the Lord! 2 Corinthians 5:8(KJV) This day let it be with thee in paradise. Luke 23:43(KJV) Now let it be for ever comforted Luke 16:25(KJV) and perfectly freed from sin. Romans 6:7(KJV) And prepare us to draw after, as there are innumerable before, Job 21:33(KJV) that we may be together for ever with the Lord, 1 Thessalonians 4:17(KJV)there where there shall be no more death, and where all tears shall be wiped away. Revelation 21:4(KJV)

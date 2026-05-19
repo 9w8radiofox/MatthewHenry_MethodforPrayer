@@ -1,0 +1,7 @@
+# 8.0 | Introduction to Occasional Addresses
+
+## Of Addresses to God upon particular occasion, whether domestic or public
+
+It is made our duty and prescribed as a remedy against disquieting care, that in everything, by prayer and supplication, with thanksgiving, we should make our requests known to God. Philippians 4:6(KJV) And it is part of the Parrhsia, the boldness, the liberty of speech (so the word signifies), which is allowed us in our access to God, Hebrews 10:19(KJV) that we may be particular in opening our case and seeking to him for relief; that, according as the sore and the grief is, accordingly the prayer and the supplication may be by any man or by the people of Israel. 2 Chronicles 6:29(KJV) Not that God needs to be particularly informed of our condition, he knows it better than we ourselves do, and our souls too in our adversity; but it is his will that we should thus acknowledge him in all our ways Proverbs 3:6(KJV) and wait upon him for the direction of every step, Psalm 37:23(KJV) not prescribing, but subscribing to infinite wisdom, humbly showing him our wants, burdens, and desires, and then referring ourselves to him, to do for us as he thinks fit.
+
+We shall instance some of the occasions of particular address to God, more or less usual, which may either be the principal matter of a whole prayer or inserted in our other prayers, and in some cases, that are more peculiar to ministers or others, in common to them with masters of families and private Christians. As there may be something particular.

@@ -1,0 +1,35 @@
+# 6.2 | Beg for the Forgiveness of what has been Amiss in your Prayers
+
+## I may then beg for the forgiveness of what has been amiss in my prayers
+
+## ESV Corporate
+
+Lord, we have not prayed as we ought: Romans 8:26(ESV) who is there who does good and never sins? Ecclesiastes 7:20(ESV) Even when we want to do right, evil lies close at hand; and if we have the desire to do what is right, we seem not to have the ability to carry it out: For we do not do the good that we want, but the evil we do not want is what we keep on doing; Romans 7:18-21(ESV) so that you might justly refuse to hear, though we make many prayers. Isaiah 1:15(ESV) But we have a great High Priest, who bears the guilt from the holy things that the people of Israel consecrate as their holy gifts; Exodus 28:38(ESV) for his sake, take away all that guilt from us, Hosea 14:2(ESV) even all the guilt and iniquity of our holy things, and receive us graciously and love us freely, Hosea 14:4(ESV) and deal not with us according to our folly. Job 42:8(ESV)
+
+## ESV First Person
+
+Lord, I have not prayed as I ought: Romans 8:26(ESV) who is there who does good and never sins? Ecclesiastes 7:20(ESV) Even when I want to do right, evil lies close at hand; Romans 7:21(ESV) and if I have the desire to do what is right, I seem not to have the ability to carry it out: For I do not do the good that I want, but the evil I do not want is what I keep on doing; Romans 7:18-19(ESV) so that you might justly refuse to hear, even though I make many prayers. Isaiah 1:15(ESV) But I have a great High Priest, who bears the guilt from the holy things that the people of Israel consecrate as their holy gifts; Exodus 28:38(ESV) for his sake, take away all that guilt from all your people, Hosea 14:2(ESV) even all the guilt and iniquity of my holy things, and receive me graciously and love me freely, Hosea 14:4(ESV) and deal not with me according to my folly. Job 42:8 (ESV)
+
+## KJV Corporate
+
+Lord, we have not prayed as we ought: Romans 8:26(KJV) who is there that does good and sins not? Ecclesiastes 7:20(KJV) Even when we would do good, evil is present with us, Romans 7:21(KJV) and if to will be present, yet how to perform that which is good we know not: for the good that we would, we do not; Romans 7:18-19(KJV) so that thou mightest justly refuse to hear, even when we make many prayers. Isaiah 1:15(KJV) But we have a great High Priest, who bears the iniquity of the holy things, which the children of Israel hallow in all their holy gifts; Exodus 28:38(KJV) for his sake, take away all that iniquity from us, even all the iniquity of our holy things, and receive us graciously, Hosea 14:2(KJV) and love us freely, Hosea 14:4(KJV) and deal not with us after our folly. Job 42:8(KJV)
+
+## KJV First Person
+
+Lord, I have not prayed as I ought: Romans 8:26(KJV) who is there that does good and sins not? Ecclesiastes 7:20(KJV) Even when I would do good, evil is present with me, Romans 7:21(KJV) and if to will be present, yet how to perform that which is good, I know not: for the good that I would, I do not; Romans 7:18-19(KJV) so that thou mightest justly refuse to hear, even when I make many prayers. Isaiah 1:15(KJV) But I have a great High Priest, who bears the iniquity of the holy things, which the children of Israel hallow in all their holy gifts; Exodus 28:38(KJV) for his sake, take away all that iniquity from all your people, even all the iniquity of my holy things, and receive me graciously, Hosea 14:2(KJV) and love me freely, Hosea 14:4(KJV) and deal not with me after my folly. Job 42:8(KJV)
+
+## NASB Corporate
+
+Lord, we have not prayed as we should: Romans 8:26(NASB) who is there who continually does good and never sins? Ecclesiastes 7:20(NASB) Even when we want to do good, evil is present in us, Romans 7:21(NASB) and if the willing is present in us, yet the doing of the good is not: For the good that we want, we do not do; Romans 7:18-19(NASB) so that You might justly refuse to listen, even though we multiply prayers. Isaiah 1:15(NASB) But we have a great High Priest, who takes away the iniquity of the holy things which the sons of Israel consecrate, with regard to all their holy gifts; Exodus 28:38(NASB) for his sake, take away all that iniquity from us, even all the iniquity of our holy things, and receive us graciously, Hosea 14:2(NASB) and love us freely, Hosea 14:4(NASB) and do not do with us according to our folly. Job 42:8(NASB)
+
+## NASB First Person
+
+Lord, I have not prayed as I should: Romans 8:26(NASB) who is there who continually does good and never sins? Ecclesiastes 7:20(NASB) Even when I want to do good, evil is present in me, Romans 7:21(NASB) and if the willing is present in me, yet the doing of the good is not: For the good that I want, I do not do; Romans 7:18-19(NASB) so that You might justly refuse to listen, even though I multiply prayers. Isaiah 1:15(NASB) But I have a great High Priest, who takes away the iniquity of the holy things which the sons of Israel consecrate, with regard to all their holy gifts; Exodus 28:38(NASB) for his sake, take away all that iniquity from all your people, even all the iniquity of my holy things, and receive me graciously, Hosea 14:2(NASB) and love me freely, Hosea 14:4(NASB) and do not do with me according to my folly. Job 42:8(NASB)
+
+## NIV Corporate
+
+Lord, we have not prayed as we ought: Romans 8:26(NIV) who is there who does what is right and never sins? Ecclesiastes 7:20(NIV) Even when we want to do good, evil is right there with us, Romans 7:21(NIV) for we have the desire to do what is good, but we cannot carry it out: For the good we want to do is not what we do; Romans 7:18-19(NIV) so that you might justly refuse to listen, even if we offer many prayers. Isaiah 1:15(NIV) But we have a great High Priest, who bears the guilt involved in the sacred gifts the Israelites consecrate, whatever their gifts may be; Exodus 28:38(NIV) for his sake, forgive all the guilt and sin of your people, even all the guilt of our sacred gifts, and receive us graciously, Hosea 14:2(NIV) and love us freely, Hosea 14:4(NIV) and do not deal with us according to our folly. Job 42:8(NIV)
+
+## NIV First Person
+
+Lord, I have not prayed as I ought: Romans 8:26(NIV) who is there who does what is right and never sins? Ecclesiastes 7:20(NIV) Even when I want to do good, evil is right there with me, Romans 7:21(NIV) for I have the desire to do what is good, but I cannot carry it out: For the good I want to do is not what I do; Romans 7:18-19(NIV) so that you might justly refuse to listen, even if I offer many prayers. Isaiah 1:15(NIV) But I have a great High Priest, who bears the guilt involved in the sacred gifts the Israelites consecrate, whatever their gifts may be; Exodus 28:38(NIV) for his sake, forgive all the sin and guilt of your people, even all the guilt of my sacred gifts, and receive me graciously, Hosea 14:2(NIV) and love me freely, Hosea 14:4(NIV) and do not deal with me according to my folly. Job 42:8(NIV)
